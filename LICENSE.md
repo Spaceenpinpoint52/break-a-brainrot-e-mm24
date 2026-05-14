@@ -1,4 +1,4 @@
-#  
+#  Experience break a brainrot egg like never before with ultimate break a brainrot egg Script, the #1 Script. Includes anti-ban and teleport for
 
 
 
